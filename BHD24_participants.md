@@ -22,3 +22,13 @@ Behold our amazing *list of hackers* :
 19. hemeretzi
 20. hogei
 21. hogeita bat
+21. hogeita bi
+23. hogeita hiru
+24. hogeita lau
+25. hogeita bost
+26. hogeita sei
+27. hogeita zazpi
+28. hogeita zortzi
+29. hogeita bederatzi
+30. hogeita hamar
+31. hogeita hamaika 
