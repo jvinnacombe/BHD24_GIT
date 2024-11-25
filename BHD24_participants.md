@@ -31,4 +31,12 @@ Behold our amazing *list of hackers* :
 28. hogeita zortzi
 29. hogeita bederatzi
 30. hogeita hamar
-31. hogeita hamaika 
+31. hogeita hamaika
+32. 
+33. 
+34. 
+35. Jakevw
+
+
+
+
